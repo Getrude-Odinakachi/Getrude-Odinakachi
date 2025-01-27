@@ -5,4 +5,4 @@
 ## Fun fact: I Love To Analyse Data for Fun 👌👌
 
 ## Connent with me on [Linkedin](www.linkedin.com/in/ihechigetrude)
-## How to reach me on [Gmail](getrudeihechi@gmail.com)
+## How to reach me on [Gmail](odinakachigetrude16@gmail.com)
